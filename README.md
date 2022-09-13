@@ -1,4 +1,4 @@
-# cv
+# CV
 
 Re: Application for the position of [junior full-stack developer] 
 
