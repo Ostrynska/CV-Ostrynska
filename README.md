@@ -10,5 +10,7 @@ My greatest strength is the ability to self-education and I`m highly motivated a
 I look forward to hearing from you soon. 
 
 Thank you in advance!
+
 Ostrynska Kateryna
+
 [Tel:]
